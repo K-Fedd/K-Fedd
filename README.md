@@ -1,6 +1,5 @@
 Ollo(Martian French for hello), I’m @K-Fedd
 👀 I’m interested in single trillionaires, but I also like mega-millionaires.
-💞️ I’m looking to find people who play Escape From Tarkov or mighty chill individuals who can be a little goofy.
 📫 You can reach me @kfed on discord.
 
 <!---
