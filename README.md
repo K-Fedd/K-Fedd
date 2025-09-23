@@ -1,5 +1,4 @@
 Ollo(Martian French for hello), I’m @K-Fedd
-👀 I’m interested in single trillionaires, but I also like mega-millionaires.
 📫 You can reach me @kfed on discord.
 
 <!---
